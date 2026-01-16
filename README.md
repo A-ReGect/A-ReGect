@@ -18,6 +18,7 @@
         
         𓏲🗝️ꜝֶָ֢ ʾʾ𓈒᮫. MY KINNIES!!!!!!! 𖠵 ◎ ꜜ ◟𖥻🐘៹┊
                      - Regect, Jacob, Guide, Geometry, Brandonworks, mattwazhere, aceofspades, 1x4 n noli (past)
-will wood enjoyer . 彡 🔦₊ ˚ᥐ
+```.will wood enjoyer . 彡 🔦₊ ˚ᥐ
+! Este texto aparece en naranja
 
 
