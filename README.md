@@ -1,5 +1,3 @@
-## <img width="2598" height="892" alt="BANNEEER" src="https://github.com/user-attachments/assets/5672e8f7-2f14-4c39-a0b3-3f5fb1542dc4" />
-
 
 <!--
 **HIII!      IM JAMIE!!!!!
