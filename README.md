@@ -3,7 +3,7 @@
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　  <img width="221" height="221" alt="image" src="https://github.com/user-attachments/assets/f16631ef-e90a-47f8-b146-aaa2c89007a0" />
  
   
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　   **HIII!      IM JAMIE!!!!!**
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　 　　　　  **HIII!      IM JAMIE!!!!!**
 
 ════════════════════════════════════
 
