@@ -1,6 +1,6 @@
 ![ban](https://github.com/user-attachments/assets/c5de778a-bc73-4ae7-a778-b70972fd684c)
 
-               <img width="221" height="221" alt="image" src="https://github.com/user-attachments/assets/f16631ef-e90a-47f8-b146-aaa2c89007a0" />
+  <img width="221" height="221" alt="image" src="https://github.com/user-attachments/assets/f16631ef-e90a-47f8-b146-aaa2c89007a0" />
 
   
    **HIII!      IM JAMIE!!!!!**
