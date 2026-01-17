@@ -11,7 +11,7 @@
 
  𓏲࣪  *ANY!* ᜊ︐ *ISFP-T*
 
- ⁺ ⑅  ꫂ ၴႅၴ     @DarkSci-Facility my spam acc                https://aregect.atabook.org/   !!!!!!!!
+ ⁺ ⑅  ꫂ ၴႅၴ   . . .  @DarkSci-Facility my spam acc    !!!!!!!!
 
 ════════════════════════════════════
 
