@@ -1,6 +1,6 @@
-## [![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&pause=1000&color=F7C556&width=435&separator=%3C&lines=CRAZYBLOX+AND+FATHER+GOONER+!!%3Cdni+if+yu+don't+like+anything+I+do+;___;;)](https://git.io/typing-svg)
+## 　　　　　　　  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&pause=1000&color=F7C556&width=435&separator=%3C&lines=CRAZYBLOX+AND+FATHER+GOONER+!!%3Cdni+if+yu+don't+like+anything+I+do+;___;;)](https://git.io/typing-svg)
 
-![ban](https://github.com/user-attachments/assets/c5de778a-bc73-4ae7-a778-b70972fd684c)
+　　　　　　　 ![ban](https://github.com/user-attachments/assets/c5de778a-bc73-4ae7-a778-b70972fd684c)
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　  <img width="221" height="221" alt="image" src="https://github.com/user-attachments/assets/f16631ef-e90a-47f8-b146-aaa2c89007a0" />
  
@@ -21,7 +21,7 @@
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
 
-- ![OMGGG](https://github.com/user-attachments/assets/241137f9-78fb-48d9-8ba7-08cbb5705497)
+## ![OMGGG](https://github.com/user-attachments/assets/241137f9-78fb-48d9-8ba7-08cbb5705497)
 
         ،🌪˖ fandoms : roblox(GENERAL!!!!!!!!!!!), minecraft, faith the unholy trinity, heathers, fnf!!!!!!!!!!
 <img width="1280" height="512" alt="give" src="https://github.com/user-attachments/assets/669414dc-8e9e-439d-b8c8-0ca451f4036e" />
