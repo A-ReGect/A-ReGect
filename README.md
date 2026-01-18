@@ -21,7 +21,8 @@
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
 
 ## ![OMGGG](https://github.com/user-attachments/assets/241137f9-78fb-48d9-8ba7-08cbb5705497)
-                                       art by: @TotiMori_ on twt!
+ 　　　　　　　　　　　　　　　　　　　　　　　　　　　  art by: @TotiMori_ on twt!
+   
        
         ،🌪˖ fandoms : roblox(GENERAL!!!!!!!!!!!), minecraft, faith the unholy trinity, heathers, fnf!!!!!!!!!!
         
@@ -29,10 +30,12 @@
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹　　　　　
 
 I try to improve everything in my life, I focus more on my partner and on taking care of myself. If you've known me for a while and my behavior has affected u, Im sorry, really!
-
+　　　　　　　　　
 If I don't reply or I'm never online, don't worry, it might be because I fell asleep or was busy with my studies
-
+　　　　　　　　　
 ALWAYS!! I'm active, especially in dc and pt. If you're lonely or want to vent to someone, I'm here
+　　　　　　　　　
+fskn, sewh, pb14, funky friday, die of death and fe2 player
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
