@@ -1,3 +1,5 @@
+## [![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&pause=1000&color=F7C556&width=435&separator=%3C&lines=CRAZYBLOX+AND+FATHER+GOONER+!!%3Cdni+if+yu+don't+like+anything+I+do+;___;;)](https://git.io/typing-svg)
+
 ![ban](https://github.com/user-attachments/assets/c5de778a-bc73-4ae7-a778-b70972fd684c)
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　  <img width="221" height="221" alt="image" src="https://github.com/user-attachments/assets/f16631ef-e90a-47f8-b146-aaa2c89007a0" />
