@@ -7,7 +7,7 @@
   
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　 　　　　  **HIII!      IM JAMIE!!!!!**
 
-════════════════════════════════════
+
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
@@ -16,21 +16,33 @@
 
 　　　　　　　　　　　　　　　　　　　　 ⁺ ⑅  ꫂ ၴႅၴ   . . .  @DarkSci-Facility my spam acc    !!!!!!!!
 
-════════════════════════════════════
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
 
 ## ![OMGGG](https://github.com/user-attachments/assets/241137f9-78fb-48d9-8ba7-08cbb5705497)
-
+                                       art by: @TotiMori_ on twt!
+       
         ،🌪˖ fandoms : roblox(GENERAL!!!!!!!!!!!), minecraft, faith the unholy trinity, heathers, fnf!!!!!!!!!!
-<img width="1280" height="512" alt="give" src="https://github.com/user-attachments/assets/669414dc-8e9e-439d-b8c8-0ca451f4036e" />
+        
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
+︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹　　　　　
 
-　　　　　　　　  'in luv with nil/night :D .  pink dinosaur . ﹗ׁ ˳⚓/ ֶָ֢ ׁ ◗'
+I try to improve everything in my life, I focus more on my partner and on taking care of myself. If you've known me for a while and my behavior has affected u, Im sorry, really!
+
+If I don't reply or I'm never online, don't worry, it might be because I fell asleep or was busy with my studies
+
+ALWAYS!! I'm active, especially in dc and pt. If you're lonely or want to vent to someone, I'm here
+
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
+︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
+
  
+ ![ME](https://github.com/user-attachments/assets/9310f3a6-3f8b-4240-bfeb-505017026b64)
+
         
         𓏲🗝️ꜝֶָ֢ ʾʾ𓈒᮫. MY KINNIES!!!!!!! 𖠵 ◎ ꜜ ◟𖥻🐘៹┊
-                     - Regect, Jacob, Guide, Geometry, Brandonworks, mattwazhere, aceofspades, 1x4 n noli (past)
+                     - Regect, Jacob, Guide, Geometry, Brandonworks, mattwazhere, aceofspades, coolkidd, 1x4 n noli (past)
 
 　　　　　　　　`.will wood enjoyer . 彡 🔦₊ ˚
                                      
