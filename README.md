@@ -1,4 +1,4 @@
-## 　　　　　　　  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&pause=1000&color=F7C556&width=435&separator=%3C&lines=CRAZYBLOX+AND+FATHER+GOONER+!!%3Cdni+if+yu+don't+like+anything+I+do+;___;;)](https://git.io/typing-svg)
+## 　　　　　　　  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&pause=1000&color=F7C556&width=435&separator=%3C&lines=CRAZYBLOX+AND+FATHER+LOVER+!!%3Cdni+if+yu+don't+like+anything+I+do+;___;;)](https://git.io/typing-svg)
 
 　　　　　 ![ban](https://github.com/user-attachments/assets/c5de778a-bc73-4ae7-a778-b70972fd684c)
 
