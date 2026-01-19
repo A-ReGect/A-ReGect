@@ -1,4 +1,4 @@
-## 　　　　　　　  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&pause=1000&color=F7C556&width=435&separator=%3C&lines=CRAZYBLOX+AND+FATHER+LOVER+!!%3Cdni+if+yu+don't+like+anything+I+do+;___;;)](https://git.io/typing-svg)
+## 　　　　　　　  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&pause=1000&color=F7C556&width=435&separator=%3C&lines=CRAZYBLOX+AND+FATHER+LOVER+!!%3Cint+if+yu+like+rblx+and+mc+args+^u^)](https://git.io/typing-svg)
 
 　　　　　 ![ban](https://github.com/user-attachments/assets/c5de778a-bc73-4ae7-a778-b70972fd684c)
 
@@ -56,5 +56,7 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=dfe15b&bar_color_cover=false&mode=light">
   </a>
 </p>
+ <img width="424" height="406" alt="image" src="https://github.com/user-attachments/assets/3c049985-6bc4-4d28-87d5-5de5676ddded" />
+  MY POOKIES
 
 
