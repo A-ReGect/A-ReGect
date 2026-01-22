@@ -56,7 +56,8 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=dfe15b&bar_color_cover=false&mode=light">
   </a>
 </p>
- <img width="424" height="406" alt="image" src="https://github.com/user-attachments/assets/3c049985-6bc4-4d28-87d5-5de5676ddded" />
+ <img width="424" height="406" alt="image" src="https://github.com/user-attachments/assets/3c049985-6bc4-4d28-87d5-5de5676ddded" /> <img width="118" height="132" alt="image" src="https://github.com/user-attachments/assets/6fdebbf6-14fb-48f8-8101-8db399f7e24f" />
+
   MY POOKIES
 
 
