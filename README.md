@@ -22,7 +22,8 @@
 #                                                                                                                                                                                                                                                                                                                                                                                                                          
    <img width="300" height="173" alt="image" src="https://github.com/user-attachments/assets/5ec0e31d-0d72-4cc3-b7dc-82039f1db92c" />
                                         　　　╰┈➤ 𝑴𝒆 𝒊𝒓𝒍 𝒈𝒖𝒚𝒔, 𝒕𝒓𝒖𝒔𝒕
-<img width="133" height="175" alt="image" src="https://github.com/user-attachments/assets/6f0d3173-31ef-4c0e-8c23-bd90321adc28" />
+<img width="1280" height="136" alt="image" src="https://github.com/user-attachments/assets/76313aa8-4307-4ba7-8a63-0a5272332843" />
+
 
 # <img width="409" height="217" alt="image" src="https://github.com/user-attachments/assets/691de009-0811-4010-a4e8-f744f5758913" /> 𝒎𝒆 𝒂𝒏𝒅 𝒎𝒚 𝒉𝒖𝒃𝒃𝒚
 
