@@ -1,4 +1,4 @@
-## 　　　　　　　  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&pause=1000&color=F7C556&width=435&separator=%3C&lines=CRAZYBLOX+AND+FATHER+LOVER+!!%3Cint+if+yu+like+rblx+and+mc+args+^u^)](https://git.io/typing-svg)
+## 　　　　　            　　  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&pause=1000&color=F7C556&width=435&separator=%3C&lines=CRAZYBLOX+AND+FATHER+LOVER+!!%3Cint+if+yu+like+rblx+and+mc+args+^u^)](https://git.io/typing-svg)
 
 <img width="2048" height="327" alt="image" src="https://github.com/user-attachments/assets/fb82eb9d-04f1-46a4-a38a-f4380d1e3c57" />
 
