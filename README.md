@@ -19,6 +19,7 @@
 # 
 
 𝑳𝒂𝒅𝒚 𝑮𝒂𝒈𝒂 & 𝑺𝒂𝒃𝒓𝒊𝒏𝒂 𝑪𝒂𝒓𝒑𝒆𝒏𝒕𝒆𝒓 𝒇𝒂𝒏   .⋆♱⃓   𝑪𝒂𝒕𝒔 & 𝑳𝒆𝒐𝒑𝒂𝒓𝒅𝒔 𝒍𝒐𝒗𝒆𝒓
+        
 <img width="300" height="173" alt="image" src="https://github.com/user-attachments/assets/5ec0e31d-0d72-4cc3-b7dc-82039f1db92c" />
  　　　　　　　　　　╰┈➤ 𝑴𝒆 𝒊𝒓𝒍 𝒈𝒖𝒚𝒔, 𝒕𝒓𝒖𝒔𝒕
 
