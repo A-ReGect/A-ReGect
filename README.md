@@ -6,6 +6,8 @@
 
 <img width="400" height="15" alt="image" src="https://github.com/user-attachments/assets/3e9c54d4-e42a-4e3b-b19d-9c5504003476" />
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&cover_image=true&theme=natemoo-re&show_offline=false&background_color=1b262c&interchange=false&profanity=false&bar_color=40b0ae&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) in case u want 2 see what im listening to (👀)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&cover_image=true&theme=natemoo-re&show_offline=false&background_color=1b262c&interchange=false&profanity=false&bar_color=40b0ae&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 𝒊𝒏 𝒄𝒂𝒔𝒆 𝒖 𝒘𝒂𝒏𝒕 𝟐 𝒔𝒆𝒆 𝒘𝒉𝒂𝒕 𝒊𝒎 𝒍𝒊𝒔𝒕𝒆𝒏𝒊𝒏𝒈 𝒕𝒐 (👀)
+
+𝐂𝐚𝐥𝐥 𝐦𝐞 𝐉𝐚𝐦𝐢𝐞 (𝐨𝐫 𝐚𝐮𝐛𝐫𝐞𝐞)               <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/be6a1a38-40e0-4c0c-bec0-06034a144c8c" /> 𝑰𝑺𝑭𝑷-𝑻 𝒏 𝟏𝟓𝒚𝒐
 
 
