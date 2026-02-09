@@ -30,3 +30,4 @@
                                       ִֶָ. ..𓂃 ࣪ ִֶָ🦋་༘࿐ Kinnies: Guide, Jacob, Brandon, Mattwaz_here, Aceofspades, Dued1, c00lkidd (more in my straw)
 
 
+<img width="2048" height="327" alt="image" src="https://github.com/user-attachments/assets/fb344362-a642-4432-a914-28eab22a2f27" />
