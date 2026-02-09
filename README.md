@@ -8,7 +8,6 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&cover_image=true&theme=natemoo-re&show_offline=false&background_color=1b262c&interchange=false&profanity=false&bar_color=40b0ae&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 𝒊𝒏 𝒄𝒂𝒔𝒆 𝒖 𝒘𝒂𝒏𝒕 𝟐 𝒔𝒆𝒆 𝒘𝒉𝒂𝒕 𝒊𝒎 𝒍𝒊𝒔𝒕𝒆𝒏𝒊𝒏𝒈 𝒕𝒐 (👀)
 
-𝐂𝐚𝐥𝐥 𝐦𝐞 𝐉𝐚𝐦𝐢𝐞 (𝐨𝐫 𝐚𝐮𝐛𝐫𝐞𝐞)     <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/843fb0db-0736-42e0-a723-cdf5f3c00902" />   
-     𝑰𝑺𝑭𝑷-𝑻 𝒏 𝟏𝟓𝒚𝒐
+𝐂𝐚𝐥𝐥 𝐦𝐞 𝐉𝐚𝐦𝐢𝐞 (𝐨𝐫 𝐚𝐮𝐛𝐫𝐞𝐞) 　　  <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/843fb0db-0736-42e0-a723-cdf5f3c00902" />　　 𝑰𝑺𝑭𝑷-𝑻 𝒏 𝟏𝟓𝒚𝒐
 
 
