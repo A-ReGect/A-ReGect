@@ -16,4 +16,16 @@
 # 𝑭𝑬𝟐 𝒂𝒏𝒅 𝑭𝑺𝑲𝑵 𝒑𝒍𝒂𝒚𝒆𝒓 (𝒂𝒅𝒅𝒊𝒄𝒕𝒆𝒅)  -`𖹭´-  𝙢𝙚𝙣𝙩𝙖𝙡𝙡𝙮 𝙪𝙣𝙨𝙩𝙖𝙗𝙡𝙚 
 
 ![OMGGG](https://github.com/user-attachments/assets/2837b31f-c498-4890-8628-f2053064b624) (BY: TotiMori_ in twt)
+# 
+
+𝑳𝒂𝒅𝒚 𝑮𝒂𝒈𝒂 & 𝑺𝒂𝒃𝒓𝒊𝒏𝒂 𝑪𝒂𝒓𝒑𝒆𝒏𝒕𝒆𝒓 𝒇𝒂𝒏   .⋆♱⃓   𝑪𝒂𝒕𝒔 & 𝑳𝒆𝒐𝒑𝒂𝒓𝒅𝒔 𝒍𝒐𝒗𝒆𝒓
+<img width="300" height="173" alt="image" src="https://github.com/user-attachments/assets/5ec0e31d-0d72-4cc3-b7dc-82039f1db92c" />
+ 　　　　　　　　　　╰┈➤ 𝑴𝒆 𝒊𝒓𝒍 𝒈𝒖𝒚𝒔, 𝒕𝒓𝒖𝒔𝒕
+
+<img width="409" height="217" alt="image" src="https://github.com/user-attachments/assets/691de009-0811-4010-a4e8-f744f5758913" /> 𝒎𝒆 𝒂𝒏𝒅 𝒎𝒚 𝒉𝒖𝒃𝒃𝒚
+
+           ִֶָ. ..𓂃 ࣪ ִֶָ🦋་༘࿐ Fandoms: RBLX (general!), Faith, Heathers, Mc args and Rblx args
+
+                                      ִֶָ. ..𓂃 ࣪ ִֶָ🦋་༘࿐ Kinnies: Guide, Jacob, Brandon, Mattwaz_here, Aceofspades, Dued1, c00lkidd (more in my straw)
+
 
