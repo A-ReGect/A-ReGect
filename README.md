@@ -11,4 +11,9 @@
 
 𝐂𝐚𝐥𝐥 𝐦𝐞 𝐉𝐚𝐦𝐢𝐞 (𝐨𝐫 𝐚𝐮𝐛𝐫𝐞𝐞) 　　  <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/843fb0db-0736-42e0-a723-cdf5f3c00902" />　　 𝑰𝑺𝑭𝑷-𝑻 𝒏 𝟏𝟓𝒚𝒐
 
+<img width="2048" height="696" alt="image" src="https://github.com/user-attachments/assets/484a4c5c-8011-4519-88ef-437dcbc3ceff" />
+
+# 𝑭𝑬𝟐 𝒂𝒏𝒅 𝑭𝑺𝑲𝑵 𝒑𝒍𝒂𝒚𝒆𝒓 (𝒂𝒅𝒅𝒊𝒄𝒕𝒆𝒅)  -`𖹭´-  𝙢𝙚𝙣𝙩𝙖𝙡𝙡𝙮 𝙪𝙣𝙨𝙩𝙖𝙗𝙡𝙚 
+
+![OMGGG](https://github.com/user-attachments/assets/2837b31f-c498-4890-8628-f2053064b624) (BY: TotiMori_ in twt)
 
