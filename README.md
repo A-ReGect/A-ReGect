@@ -1,35 +1,24 @@
 ## 　　　　　            　　  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&pause=1000&color=F7C556&width=435&separator=%3C&lines=CRAZYBLOX+AND+FATHER+LOVER+!!%3Cint+if+yu+like+rblx+and+mc+args+^u^)](https://git.io/typing-svg)
 
-<img width="2048" height="327" alt="image" src="https://github.com/user-attachments/assets/fb82eb9d-04f1-46a4-a38a-f4380d1e3c57" />
-<img width="146" height="24" alt="image" src="https://github.com/user-attachments/assets/3b7bd30e-1107-4740-80b8-0155027c236b" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/e3f3fd78-a273-4c18-916e-790ff1f4b321" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/f10503a3-1ae3-4da9-899a-61ad29ebfe39" />
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
+#  ![tumblr_5244029d0864dda125b69f60ea2e9672_38a48e40_2048](https://github.com/user-attachments/assets/b85776ac-99c1-469a-ae04-dfc3aa664302)
 
+ ![tumblr_85b126b53d73b644ebf086a725e7d548_014b66f2_75](https://github.com/user-attachments/assets/986f3a2c-607a-47a5-90c0-0231aac875f4) <p align="center">  𝓙𝓪𝓶𝓲𝓮 𝓸𝓻 𝓐𝓾𝓫𝓻𝓮𝓮 . 𝓽𝓱𝓮𝔂/𝓽𝓱𝓮𝓶 . 𝓘𝓢𝓕𝓟-𝓣 ![tumblr_85b126b53d73b644ebf086a725e7d548_014b66f2_75](https://github.com/user-attachments/assets/986f3a2c-607a-47a5-90c0-0231aac875f4)
 
-<img width="400" height="15" alt="image" src="https://github.com/user-attachments/assets/3e9c54d4-e42a-4e3b-b19d-9c5504003476">
-   
-   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&cover_image=true&theme=natemoo-re&show_offline=false&background_color=244452&interchange=false&profanity=false&bar_color=3d9e97&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 　　𝒊𝒏 𝒄𝒂𝒔𝒆 𝒖 𝒘𝒂𝒏𝒕 𝟐 𝒔𝒆𝒆 𝒘𝒉𝒂𝒕 𝒊𝒎 𝒍𝒊𝒔𝒕𝒆𝒏𝒊𝒏𝒈 𝒕𝒐 (👀)
+![tumblr_85b126b53d73b644ebf086a725e7d548_014b66f2_75](https://github.com/user-attachments/assets/986f3a2c-607a-47a5-90c0-0231aac875f4)
+                    
+  <img width="2048" height="142" alt="image" src="https://github.com/user-attachments/assets/5f57ffe4-7369-4a7c-8b9a-e8b823cb065b" />
 
-𝐂𝐚𝐥𝐥 𝐦𝐞 𝐉𝐚𝐦𝐢𝐞 (𝐨𝐫 𝐚𝐮𝐛𝐫𝐞𝐞) 　　  <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/843fb0db-0736-42e0-a723-cdf5f3c00902" />　　 𝑰𝑺𝑭𝑷-𝑻 𝒏 𝟏𝟓𝒚𝒐
+> [!NOTE]
+> I dont support the Forsaken team, I just play the game for fun!
 
-<img width="2048" height="696" alt="image" src="https://github.com/user-attachments/assets/484a4c5c-8011-4519-88ef-437dcbc3ceff" />
+[Sign Ata](https://darksci-facility.atabook.org/) + [Strawpage!!!!](https://floodisland.straw.page/)
 
-# 𝑭𝑬𝟐 𝒂𝒏𝒅 𝑭𝑺𝑲𝑵 𝒑𝒍𝒂𝒚𝒆𝒓 (𝒂𝒅𝒅𝒊𝒄𝒕𝒆𝒅)  -`𖹭´-  𝙢𝙚𝙣𝙩𝙖𝙡𝙡𝙮 𝙪𝙣𝙨𝙩𝙖𝙗𝙡𝙚 
+<img width="1043" height="589" alt="image" src="https://github.com/user-attachments/assets/b670bf16-61a3-45d8-b063-c0c756d9da97" />
+<img width="2048" height="18" alt="image" src="https://github.com/user-attachments/assets/b3288145-141a-469c-9ff6-cc63c036e1ed" />
 
-![OMGGG](https://github.com/user-attachments/assets/2837b31f-c498-4890-8628-f2053064b624) (BY: TotiMori_ in twt)
-# 
+<p align="center"> 𝓘 𝓵𝓸𝓿𝓮 𝓶𝔂 𝓱𝓾𝓫𝓫𝔂 + 𝓯𝓮𝟐 𝓷 𝓯𝓼𝓴𝓷 𝓹𝓵𝓪𝔂𝓮𝓻
+ <p align="center"> <img width="1763" height="1141" alt="image" src="https://github.com/user-attachments/assets/1a521593-158d-4c5a-91dd-f78755b479a6" />
 
-𝑳𝒂𝒅𝒚 𝑮𝒂𝒈𝒂 & 𝑺𝒂𝒃𝒓𝒊𝒏𝒂 𝑪𝒂𝒓𝒑𝒆𝒏𝒕𝒆𝒓 𝒇𝒂𝒏    .⋆♱⃓    𝑪𝒂𝒕𝒔 & 𝑳𝒆𝒐𝒑𝒂𝒓𝒅𝒔 𝒍𝒐𝒗𝒆𝒓
-#                                                                                                                                                                                                                                                                                                                                                                                                                          
-   <img width="300" height="173" alt="image" src="https://github.com/user-attachments/assets/5ec0e31d-0d72-4cc3-b7dc-82039f1db92c" />
-                                        　　　╰┈➤ 𝑴𝒆 𝒊𝒓𝒍 𝒈𝒖𝒚𝒔, 𝒕𝒓𝒖𝒔𝒕
-<img width="1280" height="136" alt="image" src="https://github.com/user-attachments/assets/76313aa8-4307-4ba7-8a63-0a5272332843" />
+  <img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/ed0b3e8e-c838-458a-8f7d-c16c98bc15c8" />
 
-
-# <img width="409" height="217" alt="image" src="https://github.com/user-attachments/assets/691de009-0811-4010-a4e8-f744f5758913" /> 𝒎𝒆 𝒂𝒏𝒅 𝒎𝒚 𝒉𝒖𝒃𝒃𝒚
-
-           ִֶָ. ..𓂃 ࣪ ִֶָ🦋་༘࿐ Fandoms: RBLX (general!), Faith, Heathers, Mc args and Rblx args
-
-                                      ִֶָ. ..𓂃 ࣪ ִֶָ🦋་༘࿐ Kinnies: Guide, Jacob, Brandon, Mattwaz_here, Aceofspades, Dued1, c00lkidd (more in my straw)
-
-
-<img width="2048" height="327" alt="image" src="https://github.com/user-attachments/assets/fb344362-a642-4432-a914-28eab22a2f27" />
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&cover_image=true&theme=novatorem&show_offline=false&background_color=c5dce6&interchange=false&profanity=false&bar_color=2f90b3&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&redirect=true)
