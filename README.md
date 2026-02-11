@@ -8,8 +8,8 @@
                     
   <img width="2048" height="142" alt="image" src="https://github.com/user-attachments/assets/5f57ffe4-7369-4a7c-8b9a-e8b823cb065b" />
 
-> [!NOTE]
-> rentry.co/insomdoc !! > insom's document , read carefully!!!
+> [!WARNING]
+> [rentry.co/insomdoc](https://rentry.co/insomdoc) !! > insom's document , read carefully!!!
 
 [Sign Ata](https://darksci-facility.atabook.org/) + [Strawpage!!!!](https://floodisland.straw.page/)
 
