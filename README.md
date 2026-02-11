@@ -9,7 +9,7 @@
   <img width="2048" height="142" alt="image" src="https://github.com/user-attachments/assets/5f57ffe4-7369-4a7c-8b9a-e8b823cb065b" />
 
 > [!NOTE]
-> I dont support the Forsaken team, I just play the game for fun!
+> rentry.co/insomdoc !! > insom's document , read carefully!!!
 
 [Sign Ata](https://darksci-facility.atabook.org/) + [Strawpage!!!!](https://floodisland.straw.page/)
 
