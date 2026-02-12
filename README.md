@@ -22,3 +22,4 @@
   <img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/ed0b3e8e-c838-458a-8f7d-c16c98bc15c8" />
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&cover_image=true&theme=novatorem&show_offline=false&background_color=c5dce6&interchange=false&profanity=false&bar_color=2f90b3&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&redirect=true)
+ <img width="518" height="106" alt="image" src="https://github.com/user-attachments/assets/f0d7e9b0-d3c7-4b38-9b10-fe2d6e28dcd8" />
