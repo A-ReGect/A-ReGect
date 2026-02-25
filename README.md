@@ -1,25 +1,37 @@
-## 　　　　　       ㅤㅤㅤ     　　  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&pause=1000&color=F7C556&width=435&separator=%3C&lines=CRAZYBLOX+AND+FATHER+LOVER+!!%3Cint+if+yu+like+rblx+and+mc+args+^u^)](https://git.io/typing-svg)
+# <img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/484ce762-bd98-4a61-86b4-63823e6c5355" />
 
-#  ![tumblr_5244029d0864dda125b69f60ea2e9672_38a48e40_2048](https://github.com/user-attachments/assets/b85776ac-99c1-469a-ae04-dfc3aa664302)
+<img width="1043" height="589" alt="image" src="https://github.com/user-attachments/assets/af7cfdf8-6785-4588-bb55-0dec8a83d2f9" />
+<img width="1280" height="80" alt="image" src="https://github.com/user-attachments/assets/f62fcbd1-ad80-4a51-832c-ebe8db6d6549" />
+<p align="center"> HII ꒰ ᐥ ˑ ࡀ ˑ ꒱
+ .  Call me Newbie or Jamie . ask prns -> dc or ata
+<p align="center"> minor . BEST GUIDE KINNIE! ACCEPT ME :( 
+<p align="center"> u can find me at Safe Server & Safe Spanish ꒰ྀིっ´   ` c ྀི꒱
 
- ![tumblr_85b126b53d73b644ebf086a725e7d548_014b66f2_75](https://github.com/user-attachments/assets/986f3a2c-607a-47a5-90c0-0231aac875f4) <p align="center">  𝓙𝓪𝓶𝓲𝓮 𝓸𝓻 𝓐𝓾𝓫𝓻𝓮𝓮 . 𝓽𝓱𝓮𝔂/𝓽𝓱𝓮𝓶 . 𝓘𝓢𝓕𝓟-𝓣 ![tumblr_85b126b53d73b644ebf086a725e7d548_014b66f2_75](https://github.com/user-attachments/assets/986f3a2c-607a-47a5-90c0-0231aac875f4)
+  
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&cover_image=true&theme=novatorem&show_offline=false&background_color=6d9cb0&interchange=false&profanity=false&bar_color=7fc0e1&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+## <img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/a228c841-8ecd-443f-8608-42753c62f69c" />
+<img width="1043" height="589" alt="image" src="https://github.com/user-attachments/assets/a02c0985-d60c-4300-a87e-18469187e4f9" />
+ㅤ
+<p align="center"> Basic DNI 
+<p align="center"> Pedophiles, necrophiles, zoophiles, any ex-friend Ive ever had (w/ exceptions), INSOMN (@missingchildrens), homophobes, ppl over 18 & disgusting jokes
+<img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/3fd79b1c-1226-412d-865a-5f03684f2932" />
 
-![tumblr_85b126b53d73b644ebf086a725e7d548_014b66f2_75](https://github.com/user-attachments/assets/986f3a2c-607a-47a5-90c0-0231aac875f4)
-                    
-  <img width="2048" height="142" alt="image" src="https://github.com/user-attachments/assets/5f57ffe4-7369-4a7c-8b9a-e8b823cb065b" />
+  <img width="1043" height="589" alt="image" src="https://github.com/user-attachments/assets/ada9de1f-3ecb-4667-8303-7e8184c53d7e" />
+<p align="center"> MY BELOVED HUBBY ILHILHLHLYOHYHYHYLHL
+  
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ♡ [@livingdeadcorpse](https://github.com/livingdeadcorpse)  ♡
+<p align="center"> I love him so much, hes the crazy to my guide... HES MY BEAUTIFUL PARTNER! MWA MWA
+<img width="1200" height="62" alt="image" src="https://github.com/user-attachments/assets/4fcad1d9-9b24-4b79-8d12-c6e624404384" />
+<img width="1043" height="589" alt="image" src="https://github.com/user-attachments/assets/0bfcefb4-f388-4e07-882a-145d5d057f29" />
+<img width="1200" height="62" alt="image" src="https://github.com/user-attachments/assets/f0dae627-e133-4563-8616-3e60397903cc" /> 
 
-> [!WARNING]
-> [rentry.co/insomdoc](https://rentry.co/insomdoc) !! > insom's document , read carefully!!!
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[my atabook](https://darksci-facility.atabook.org/) . [my strawpage](https://floodisland.straw.page/)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Sign Ata](https://darksci-facility.atabook.org/) + [Strawpage!!!!](https://floodisland.straw.page/)
 
-<img width="1043" height="589" alt="image" src="https://github.com/user-attachments/assets/b670bf16-61a3-45d8-b063-c0c756d9da97" />
-<img width="2048" height="18" alt="image" src="https://github.com/user-attachments/assets/b3288145-141a-469c-9ff6-cc63c036e1ed" />
+<img width="1043" height="589" alt="image" src="https://github.com/user-attachments/assets/84c6f6ef-0230-4286-bfa9-b21a9f113340" />
+<img width="2048" height="171" alt="image" src="https://github.com/user-attachments/assets/284a05b1-fd29-4f07-b42b-36f0c0aef2da" />
 
-<p align="center"> 𝓘 𝓵𝓸𝓿𝓮 𝓶𝔂 𝓱𝓾𝓫𝓫𝔂 + 𝓯𝓮𝟐 𝓷 𝓯𝓼𝓴𝓷 𝓹𝓵𝓪𝔂𝓮𝓻
- <p align="center"> <img width="1763" height="1141" alt="image" src="https://github.com/user-attachments/assets/1a521593-158d-4c5a-91dd-f78755b479a6" />
 
-  <img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/ed0b3e8e-c838-458a-8f7d-c16c98bc15c8" />
+# [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=76E7F7&width=435&lines=SAVE+THE+LITTLE+GUIDE+)](https://git.io/typing-svg) [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=CF82F7&width=435&lines=KILL+THE+EVIL+CRAZYBLOX)](https://git.io/typing-svg)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&cover_image=true&theme=novatorem&show_offline=false&background_color=c5dce6&interchange=false&profanity=false&bar_color=2f90b3&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&redirect=true)
- <img width="518" height="106" alt="image" src="https://github.com/user-attachments/assets/f0d7e9b0-d3c7-4b38-9b10-fe2d6e28dcd8" />
+<img width="1500" height="500" alt="image" src="https://github.com/user-attachments/assets/488d70c1-b004-433d-9a19-a8baca21fa25" />
