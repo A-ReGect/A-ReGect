@@ -3,7 +3,7 @@
 <img width="1043" height="589" alt="image" src="https://github.com/user-attachments/assets/af7cfdf8-6785-4588-bb55-0dec8a83d2f9" />
 <img width="1280" height="80" alt="image" src="https://github.com/user-attachments/assets/f62fcbd1-ad80-4a51-832c-ebe8db6d6549" />
 <p align="center"> HII ꒰ ᐥ ˑ ࡀ ˑ ꒱
- .  Call me Newbie or Jamie . ask prns -> dc or ata
+ .  Call me Newbie or Vitaly . ask prns -> dc or ata
 <p align="center"> minor . BEST GUIDE KINNIE! ACCEPT ME :( 
 <p align="center"> u can find me at Safe Server & Safe Spanish ꒰ྀིっ´   ` c ྀི꒱
 
