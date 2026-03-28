@@ -40,3 +40,8 @@
 <img width="1043" height="589" alt="image" src="https://github.com/user-attachments/assets/84c6f6ef-0230-4286-bfa9-b21a9f113340" />
    > [!IMPORTANT]
 > CREDITS : @l0vemailz & @P0PRTART ON TWITTER // aka the rest belong to my pookies!
+
+
+
+https://github.com/user-attachments/assets/cb6eb00f-cbd8-46e6-b724-f1db44cfb3b6
+
