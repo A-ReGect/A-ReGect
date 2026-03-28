@@ -6,6 +6,12 @@
 <p align="center"> ${\textsf{\color{#7E5B80}they/them . BASIC DNI! . artist and roblox user . ISFP-T }}$
   <p align="center"> ${\textsf{\color{#897B7F}@voidstart3r on twt . ask 4 my disc!. @guideirl on tumblr. @Central-Mass-Array is my spam acc!  }}$
 
+<p align="center">
+  <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/1a32b383-0fd5-4ec9-8045-a949ef4fc6c7" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/62916b74-3aca-469a-a5d0-1ec2664457ac" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/de70c768-828d-4884-9afd-7128d6bf63c1" />
+
+<p align="center">
+  <img width="500" height="106" alt="image" src="https://github.com/user-attachments/assets/46b01fb9-7bd6-4bdf-a21b-8f0058d13220" />
+
 <img width="1600" height="120" alt="image" src="https://github.com/user-attachments/assets/40349c64-997f-4212-a6fd-21b87723360a" />
 <img width="1301" height="925" alt="501_sin_titulo_20260328122356__fliter--sea__channel--green__mode--exclusion" src="https://github.com/user-attachments/assets/24d7f8d3-febc-4d13-83c3-c1cc56b4a377" />
 
