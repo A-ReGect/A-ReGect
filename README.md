@@ -4,6 +4,8 @@
 
 <p align="center"> ${\textsf{\color{#486877}Hii, call me vily or vitaly }}$
 <p align="center"> ${\textsf{\color{#7E5B80}they/them . BASIC DNI! . artist and roblox user }}$
+  <p align="center"> ${\textsf{\color{#897B7F}@voidstart3r on twt . ask 4 my disc!. @guideirl on tumblr. @Central-Mass-Array is my spam acc!  }}$
+
 <img width="1600" height="120" alt="image" src="https://github.com/user-attachments/assets/40349c64-997f-4212-a6fd-21b87723360a" />
 <img width="1301" height="925" alt="501_sin_titulo_20260328122356__fliter--sea__channel--green__mode--exclusion" src="https://github.com/user-attachments/assets/24d7f8d3-febc-4d13-83c3-c1cc56b4a377" />
 
