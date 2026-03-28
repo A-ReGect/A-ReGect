@@ -1,37 +1,42 @@
-# <img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/484ce762-bd98-4a61-86b4-63823e6c5355" />
+# <img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/1442da05-6715-412a-9394-9ae93cd8210c" />
 
-<img width="1043" height="589" alt="image" src="https://github.com/user-attachments/assets/af7cfdf8-6785-4588-bb55-0dec8a83d2f9" />
-<img width="1280" height="80" alt="image" src="https://github.com/user-attachments/assets/f62fcbd1-ad80-4a51-832c-ebe8db6d6549" />
-<p align="center"> HII ꒰ ᐥ ˑ ࡀ ˑ ꒱
- .  Call me Newbie or Vitaly . ask prns -> dc or ata
-<p align="center"> minor . BEST GUIDE KINNIE! ACCEPT ME :( 
-<p align="center"> u can find me at Safe Server & Safe Spanish ꒰ྀིっ´   ` c ྀི꒱
+<img width="1301" height="925" alt="image" src="https://github.com/user-attachments/assets/dd9ce21f-b3d7-4406-84c5-3ab3689b4bb9" />
 
-  
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&cover_image=true&theme=novatorem&show_offline=false&background_color=6d9cb0&interchange=false&profanity=false&bar_color=7fc0e1&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-## <img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/a228c841-8ecd-443f-8608-42753c62f69c" />
-<img width="1043" height="589" alt="image" src="https://github.com/user-attachments/assets/a02c0985-d60c-4300-a87e-18469187e4f9" />
-ㅤ
-<p align="center"> Basic DNI 
-<p align="center"> Pedophiles, necrophiles, zoophiles, any ex-friend Ive ever had (w/ exceptions), INSOMN (@missingchildrens), homophobes, ppl over 18 & disgusting jokes
-<img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/3fd79b1c-1226-412d-865a-5f03684f2932" />
+<p align="center"> ${\textsf{\color{#486877}Hii, call me vily or vitaly }}$
+<p align="center"> ${\textsf{\color{#7E5B80}they/them . BASIC DNI! . artist and roblox user }}$
+<img width="1600" height="120" alt="image" src="https://github.com/user-attachments/assets/40349c64-997f-4212-a6fd-21b87723360a" />
+<img width="1301" height="925" alt="501_sin_titulo_20260328122356__fliter--sea__channel--green__mode--exclusion" src="https://github.com/user-attachments/assets/24d7f8d3-febc-4d13-83c3-c1cc56b4a377" />
 
-  <img width="1043" height="589" alt="image" src="https://github.com/user-attachments/assets/ada9de1f-3ecb-4667-8303-7e8184c53d7e" />
-<p align="center"> MY BELOVED HUBBY ILHILHLHLYOHYHYHYLHL
-  
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ♡ [@livingdeadcorpse](https://github.com/livingdeadcorpse)  ♡
-<p align="center"> I love him so much, hes the crazy to my guide... HES MY BEAUTIFUL PARTNER! MWA MWA
-<img width="1200" height="62" alt="image" src="https://github.com/user-attachments/assets/4fcad1d9-9b24-4b79-8d12-c6e624404384" />
-<img width="1043" height="589" alt="image" src="https://github.com/user-attachments/assets/0bfcefb4-f388-4e07-882a-145d5d057f29" />
-<img width="1200" height="62" alt="image" src="https://github.com/user-attachments/assets/f0dae627-e133-4563-8616-3e60397903cc" /> 
+  ## <img width="1600" height="120" alt="image" src="https://github.com/user-attachments/assets/27b19682-f0a1-437a-b3af-4c30f130e0b4" />
+<p align="center"> ${\textsf{\color{#486877}My kins (.❛ ᴗ ❛.) }}$
+<p align="center"> ${\textsf{\color{#7E5B80}they/them . Guide n Jacob r MY MAIN KINNIES!! }}$
+<p align="center"> ${\textsf{\color{#897B7F} Narrator, brandon, ace, tubbo, college noli, coolkidd, expedition, scarlette, 1x1x1x1, regect, subspace, andrew2002 and nosferatu }}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[my atabook](https://darksci-facility.atabook.org/) . [my strawpage](https://floodisland.straw.page/)
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&cover_image=true&theme=novatorem&show_offline=false&background_color=000001&interchange=false&profanity=false&bar_color=897893&bar_color_cover=false">
+  </a>
+</p>
+
+<p align="center">
+    <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&pause=1000&color=486877&width=435&lines=crazyblox+yumeshipper+bc+its+my+bf+exo" alt="Typing SVG" /></a>
+    </a>
+</p>
+
+<img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/cb3767e9-1918-4f09-91f5-d51a8f24694e" />
+
+<img width="1070" height="1182" alt="503_sin_titulo_20260328131303__fliter--sea__channel--blue__mode--exclusion" src="https://github.com/user-attachments/assets/0617036f-3448-46bf-bdee-f299365aa8c6" />
+
+<p align="center"> ${\textsf{\color{#217785}What's it take to get your number? }}$
+<p align="center"> ${\textsf{\color{#217785}What's it take to bring you home? }}$
+<img width="1000" height="50" alt="image" src="https://github.com/user-attachments/assets/7038894b-d839-4e15-b56b-e32b8d437e79" />
+
+ <p align="center"> ${\textsf{\color{#486877}I love you so much, you're the best thing that's ever happened to me... Go follow this beautiful creature! She's the love of my life }}$
 
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ♡ [@livingdeadcorpse](https://github.com/livingdeadcorpse)  ♡ 
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[my atabook](https://darksci-facility.atabook.org/) . [my strawpage](https://floodisland.straw.page/)
 <img width="1043" height="589" alt="image" src="https://github.com/user-attachments/assets/84c6f6ef-0230-4286-bfa9-b21a9f113340" />
-<img width="2048" height="171" alt="image" src="https://github.com/user-attachments/assets/284a05b1-fd29-4f07-b42b-36f0c0aef2da" />
-
-
-# [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=76E7F7&width=435&lines=SAVE+THE+LITTLE+GUIDE+)](https://git.io/typing-svg) [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=CF82F7&width=435&lines=KILL+THE+EVIL+CRAZYBLOX)](https://git.io/typing-svg)
-
-<img width="1500" height="500" alt="image" src="https://github.com/user-attachments/assets/488d70c1-b004-433d-9a19-a8baca21fa25" />
+   > [!IMPORTANT]
+> CREDITS : @l0vemailz & @P0PRTART ON TWITTER // aka the rest belong to my pookies!
