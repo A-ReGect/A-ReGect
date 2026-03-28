@@ -9,7 +9,7 @@
 
   ## <img width="1600" height="120" alt="image" src="https://github.com/user-attachments/assets/27b19682-f0a1-437a-b3af-4c30f130e0b4" />
 <p align="center"> ${\textsf{\color{#486877}My kins (.❛ ᴗ ❛.) }}$
-<p align="center"> ${\textsf{\color{#7E5B80}they/them . Guide n Jacob r MY MAIN KINNIES!! }}$
+<p align="center"> ${\textsf{\color{#7E5B80} Guide n Jacob r MY MAIN KINNIES!! }}$
 <p align="center"> ${\textsf{\color{#897B7F} Narrator, brandon, ace, tubbo, college noli, coolkidd, expedition, scarlette, 1x1x1x1, regect, subspace, andrew2002 and nosferatu }}$
 
 <p align="center">
