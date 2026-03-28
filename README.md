@@ -3,7 +3,7 @@
 <img width="1301" height="925" alt="image" src="https://github.com/user-attachments/assets/dd9ce21f-b3d7-4406-84c5-3ab3689b4bb9" />
 
 <p align="center"> ${\textsf{\color{#486877}Hii, call me vily or vitaly }}$
-<p align="center"> ${\textsf{\color{#7E5B80}they/them . BASIC DNI! . artist and roblox user }}$
+<p align="center"> ${\textsf{\color{#7E5B80}they/them . BASIC DNI! . artist and roblox user . ISFP-T }}$
   <p align="center"> ${\textsf{\color{#897B7F}@voidstart3r on twt . ask 4 my disc!. @guideirl on tumblr. @Central-Mass-Array is my spam acc!  }}$
 
 <img width="1600" height="120" alt="image" src="https://github.com/user-attachments/assets/40349c64-997f-4212-a6fd-21b87723360a" />
