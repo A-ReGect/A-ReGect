@@ -47,7 +47,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[my atabook](https://darksci-facility.atabook.org/) . [my strawpage](https://floodisland.straw.page/)
 <img width="1043" height="589" alt="image" src="https://github.com/user-attachments/assets/84c6f6ef-0230-4286-bfa9-b21a9f113340" />
    > [!IMPORTANT]
-> CREDITS : @l0vemailz & @P0PRTART ON TWITTER // aka the rest belong to my pookies!
+> CREDITS : @l0vemailz & @P0PRTART ON TWITTER, pls dont associate crazyguide with their art, thank u!! // aka the rest belong to my pookies!
 
 
 
