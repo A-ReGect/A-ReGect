@@ -35,14 +35,14 @@
 
 <img width="1070" height="1182" alt="503_sin_titulo_20260328131303__fliter--sea__channel--blue__mode--exclusion" src="https://github.com/user-attachments/assets/0617036f-3448-46bf-bdee-f299365aa8c6" />
 
-<p align="center"> ${\textsf{\color{#217785}What's it take to get your number? }}$
-<p align="center"> ${\textsf{\color{#217785}What's it take to bring you home? }}$
+<p align="center"> ${\textsf{\color{#217785} 'Cause I dream about you in my sleep }}$
+<p align="center"> ${\textsf{\color{#217785} Would you ever love someone like me (someone like me) }}$
 <img width="1000" height="50" alt="image" src="https://github.com/user-attachments/assets/7038894b-d839-4e15-b56b-e32b8d437e79" />
 
- <p align="center"> ${\textsf{\color{#486877}I love you so much, you're the best thing that's ever happened to me... Go follow this beautiful creature! She's the love of my life }}$
+ <p align="center"> ${\textsf{\color{#486877} ima fan of isle }}$
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ♡ kill urself  ♡ 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[my atabook](https://cave-system.atabook.org/) . [my strawpage](https://guidy.straw.page/)
 <img width="1043" height="589" alt="image" src="https://github.com/user-attachments/assets/84c6f6ef-0230-4286-bfa9-b21a9f113340" />
