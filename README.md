@@ -27,7 +27,7 @@
 </p>
 
 <p align="center">
-    <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&pause=1000&color=486877&width=435&lines=crazyblox+yumeshipper+bc+its+my+bf+exo" alt="Typing SVG" /></a>
+    <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&pause=1000&color=486877&width=435&lines=crazyblox+yumeshipper+bc+its+my+REAL+bf" alt="Typing SVG" /></a>
     </a>
 </p>
 
