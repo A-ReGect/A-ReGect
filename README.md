@@ -42,7 +42,7 @@
  <p align="center"> ${\textsf{\color{#486877}I love you so much, you're the best thing that's ever happened to me... Go follow this beautiful creature! She's the love of my life }}$
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ♡ [@livingdeadcorpse](https://github.com/livingdeadcorpse)  ♡ 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ♡ kill urself  ♡ 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[my atabook](https://cave-system.atabook.org/) . [my strawpage](https://guidy.straw.page/)
 <img width="1043" height="589" alt="image" src="https://github.com/user-attachments/assets/84c6f6ef-0230-4286-bfa9-b21a9f113340" />
