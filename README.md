@@ -39,7 +39,7 @@
 <p align="center"> ${\textsf{\color{#217785} Would you ever love someone like me (someone like me) }}$
 <img width="1000" height="50" alt="image" src="https://github.com/user-attachments/assets/7038894b-d839-4e15-b56b-e32b8d437e79" />
 
- <p align="center"> ${\textsf{\color{#486877} normal guy who loves his bsff very much }}$
+ <p align="center"> ${\textsf{\color{#486877} 05/10/26 !! I LOVE MY CUTIEE }}$
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
