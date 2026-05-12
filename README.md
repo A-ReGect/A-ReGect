@@ -63,26 +63,13 @@ https://github.com/user-attachments/assets/3447df06-59a1-434f-981b-3c8b8dd76e56
   
    [send Crazyblox a message!](https://vitaly.straw.page/)${\textsf{\color{#4a5894} (strawpage) }}$ 
 
+<img width="100%" height="380" alt="image" src="https://github.com/user-attachments/assets/84c6f6ef-0230-4286-bfa9-b21a9f113340" />
    <img width="100%" height="216" alt="image" src="https://github.com/user-attachments/assets/d999700d-3272-4ed0-8063-96b77f84e508" />
-
-<p align="center"> ${\textsf{\color{#217785} 'Cause I dream about you in my sleep }}$
-<p align="center"> ${\textsf{\color{#217785} Would you ever love someone like me (someone like me) }}$
-<img width="1000" height="50" alt="image" src="https://github.com/user-attachments/assets/7038894b-d839-4e15-b56b-e32b8d437e79" />
-
- <p align="center"> ${\textsf{\color{#486877} 05/10/26 !! I LOVE MY CUTIEE }}$
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[my atabook](https://cave-system.atabook.org/) . [my strawpage](https://guidy.straw.page/)
-<img width="1043" height="589" alt="image" src="https://github.com/user-attachments/assets/84c6f6ef-0230-4286-bfa9-b21a9f113340" />
-   > [!IMPORTANT]
-> CREDITS : @l0vemailz & @P0PRTART ON TWITTER, pls dont associate crazyguide with their art, thank u!! // aka the rest belong to my pookies!
 
-
-
-
-https://github.com/user-attachments/assets/10b5f152-0d1a-4d87-8217-6caa87f2d82f
 
 
 
