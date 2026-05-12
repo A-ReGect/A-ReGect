@@ -1,39 +1,69 @@
-# <img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/1442da05-6715-412a-9394-9ae93cd8210c" />
+<img width="100%" height="216" alt="image" src="https://github.com/user-attachments/assets/aab5610c-92e4-435f-b0b8-02b985a5baa9" />
 
-<img width="1301" height="925" alt="image" src="https://github.com/user-attachments/assets/dd9ce21f-b3d7-4406-84c5-3ab3689b4bb9" />
 
-<p align="center"> ${\textsf{\color{#486877}Hii, call me vily or vitaly }}$
-<p align="center"> ${\textsf{\color{#7E5B80}they/them . BASIC DNI! . artist and roblox user . ISFP-T }}$
-  <p align="center"> ${\textsf{\color{#897B7F}@voidstart3r on twt . ask 4 my disc!. @guideirl on tumblr. @Central-Mass-Array is my spam acc!  }}$
+<p align="center"> ${\textsf{\color{#9db3d1} > Flood OS 2.0 20xx }}$
 
-<p align="center">
-  <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/1a32b383-0fd5-4ec9-8045-a949ef4fc6c7" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/62916b74-3aca-469a-a5d0-1ec2664457ac" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/de70c768-828d-4884-9afd-7128d6bf63c1" />
+<p align="center"> ${\textsf{\color{#7e99bd} > Checking Access...}}$
 
-<p align="center">
-  <img width="500" height="106" alt="image" src="https://github.com/user-attachments/assets/46b01fb9-7bd6-4bdf-a21b-8f0058d13220" />
+<p align="center"> ${\textsf{\color{#e4ff03}> Access Granted }}$
 
-<img width="1600" height="120" alt="image" src="https://github.com/user-attachments/assets/40349c64-997f-4212-a6fd-21b87723360a" />
-<img width="1301" height="925" alt="501_sin_titulo_20260328122356__fliter--sea__channel--green__mode--exclusion" src="https://github.com/user-attachments/assets/24d7f8d3-febc-4d13-83c3-c1cc56b4a377" />
 
-  ## <img width="1600" height="120" alt="image" src="https://github.com/user-attachments/assets/27b19682-f0a1-437a-b3af-4c30f130e0b4" />
-<p align="center"> ${\textsf{\color{#486877}My kins (.❛ ᴗ ❛.) }}$
-<p align="center"> ${\textsf{\color{#7E5B80}ʚɞ ⁺˖ ⸝⸝ Guide n Jacob r MY MAIN KINNIES!! }}$
-<p align="center"> ${\textsf{\color{#897B7F}༉‧₊˚ Narrator, brandon, ace, tubbo, college noli, coolkidd, expedition, scarlette, 1x1x1x1, regect, subspace, andrew2002 and nosferatu }}$
+<p align="right"> ${\textsf{\color{#4e6f99}Eventually something happens to the facility, causing the destruction of Flood Escape. }}$
+
+<div align="left">
+  
+${\textsf{\color{#8a3e3e}He is trapped beneath ruins overflowing with lava, and finds a paper presumably detailing plans for}}$ [Flood Escape 2](https://floodescape.miraheze.org/wiki/Flood_Escape_2)
+
+</div>
+
+<div align="center">
+
+<img width="100%" height="840" alt="618_sin_titulo_20260511170903__fliter--yellow-blue-acid__channel--blue__mode--color-dodge" src="https://github.com/user-attachments/assets/26c47123-ea7c-4f2e-a57e-43213bbcde66" />
+</div>
+
+
+<div align="center">
+  
+${\textsf{\color{#72b6cf} call me matty // esp/eng // happily married w/}}$ [my crazyblox](https://github.com/DarkSci-Facility) 
+
+${\textsf{\color{#658dc9} 05/10/26 // guide BEST fictkin // crazyblox's yumeshipper }}$
+
+${\textsf{\color{#657cc9} ISFP-T // in recovery // minor }}$
+</div>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&cover_image=true&theme=novatorem&show_offline=false&background_color=000001&interchange=false&profanity=false&bar_color=897893&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&cover_image=true&theme=novatorem&show_offline=false&background_color=636090&interchange=false&profanity=false&bar_color=4e93b1&bar_color_cover=false">
   </a>
 </p>
 
-<p align="center">
-    <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&pause=1000&color=486877&width=435&lines=crazyblox+yumeshipper+bc+its+my+REAL+bf" alt="Typing SVG" /></a>
-    </a>
-</p>
 
-<img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/cb3767e9-1918-4f09-91f5-d51a8f24694e" />
+ㅤ
+  
+<p align="center"> ${\textsf{\color{#657cc9} How can I find you? }}$
+  
+<p align="center"> ${\textsf{\color{#658dc9} "There are 5 Variants in this "Game"(profile). Which one do you need help with?" }}$
+<div align="center">
+  
+   [scarlette](https://www.tumblr.com/guideirl?source=share)${\textsf{\color{#c96565} (tumblr) }}$ 
+  ㅤ　[jasper](https://x.com/voidstart3r)${\textsf{\color{#b54545} twitter (x) }}$
+ㅤ　　[refraction](https://github.com/Central-Mass-Array)${\textsf{\color{#994090} (spam acc) }}$
+ㅤㅤㅤ[laze](https://cave-system.atabook.org/)${\textsf{\color{#99405e} (atabook) }}$
+</div>
 
-<img width="1070" height="1182" alt="503_sin_titulo_20260328131303__fliter--sea__channel--blue__mode--exclusion" src="https://github.com/user-attachments/assets/0617036f-3448-46bf-bdee-f299365aa8c6" />
+<img width="100%" height="40" alt="image" src="https://github.com/user-attachments/assets/5bb4006a-b3fa-4940-90e6-0a326f0185ab" />
+
+
+
+https://github.com/user-attachments/assets/3447df06-59a1-434f-981b-3c8b8dd76e56
+
+<p align="center"> ${\textsf{\color{#374273} I have an idea and questions for this "game"(profile)! }}$
+  
+<div align="center">
+  
+   [send Crazyblox a message!](https://vitaly.straw.page/)${\textsf{\color{#4a5894} (strawpage) }}$ 
+
+   <img width="100%" height="216" alt="image" src="https://github.com/user-attachments/assets/d999700d-3272-4ed0-8063-96b77f84e508" />
 
 <p align="center"> ${\textsf{\color{#217785} 'Cause I dream about you in my sleep }}$
 <p align="center"> ${\textsf{\color{#217785} Would you ever love someone like me (someone like me) }}$
