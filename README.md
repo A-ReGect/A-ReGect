@@ -7,10 +7,17 @@
   
 <img width="100%" height="1237" alt="image-b082-gradientmap pro" src="https://github.com/user-attachments/assets/76f4028b-52ad-4bea-b1ac-5e48193d7eaa" />
 
-<p align="center"> ${\textsf{\color{#11095B} ₊⁺ ૮꒰ •͈ ·̭ •͈ ꒱ა ⁺₊ }}$
-<p align="center"> ${\textsf{\color{#73AEB9} ۶ེ༹༷♡︎ᣟ݂ matty | artist ` minor ` taken  ⁄⁄͈ . ᴗ͈ 𓏵𓏵 }}$
-<p align="center"> ${\textsf{\color{#D1F8FF} ⌕　𓊈𓏵𓊉 ‿୨ ݁𓈒͈ . ᴗ͈ ིྀ ͝   ‧̥̥ ISFP-T ` in recovery ` 05/10/26 ♡︎་། }}$
-<p align="center"> ${\textsf{\color{#F6007A} 𑣲₍ ᐢ. .ᐢ₎　 }}$
+<div align="center">
+  
+${\textsf{\color{#11095B} ₊⁺ ૮꒰ •͈ ·̭ •͈ ꒱ა ⁺₊ }}$
+
+${\textsf{\color{#73AEB9} ۶ེ༹༷♡︎ᣟ݂ matty | artist / minor / taken by  ⁄⁄͈ . ᴗ͈ 𓏵𓏵 }}$ [my crazyblox](https://github.com/DarkSci-Facility) 
+
+${\textsf{\color{#D1F8FF} ⌕　𓊈𓏵𓊉 ‿୨ ݁𓈒͈ . ᴗ͈ ིྀ ͝   ‧̥̥ ISFP-T / in recovery / 05/10/26 ♡︎་། }}$
+
+${\textsf{\color{#F6007A} 𑣲₍ ᐢ. .ᐢ₎　 }}$
+</div>
+
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&redirect=true">
