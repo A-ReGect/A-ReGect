@@ -11,7 +11,7 @@
   
 ${\textsf{\color{#11095B} ₊⁺ ૮꒰ •͈ ·̭ •͈ ꒱ა ⁺₊ }}$
 
-${\textsf{\color{#73AEB9} ۶ེ༹༷♡︎ᣟ݂ matty | artist / minor / taken by  ⁄⁄͈ . ᴗ͈ 𓏵𓏵 }}$ [my crazyblox](https://github.com/DarkSci-Facility) 
+${\textsf{\color{#73AEB9} ۶ེ༹༷♡︎ᣟ݂ matty | artist / minor / taken by}}$ [my crazyblox](https://github.com/DarkSci-Facility) ${\textsf{\color{#73AEB9} ⁄⁄͈ . ᴗ͈ 𓏵𓏵 }}$
 
 ${\textsf{\color{#D1F8FF} ⌕　𓊈𓏵𓊉 ‿୨ ݁𓈒͈ . ᴗ͈ ིྀ ͝   ‧̥̥ ISFP-T / in recovery / 05/10/26 ♡︎་། }}$
 
