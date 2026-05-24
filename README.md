@@ -1,51 +1,51 @@
-<img width="705%" height="129" alt="image-37ed-gradientmap pro" src="https://github.com/user-attachments/assets/b28ef72e-a822-49b1-b24f-eb19ca812a1b" />
-<p align="center"> ${\textsf{\color{#9db3d1} > Flood OS 2.0 20xx }}$
+<img width="100%" height="330" alt="tumblr_e4eeb11887611acf33f3d7bab225a014_4b5707d9_2048" src="https://github.com/user-attachments/assets/4f01306f-8b9b-40b3-9de8-54cca247c6d7" />
 
-<p align="center"> ${\textsf{\color{#7e99bd} > Checking Access...}}$
+ 
+# <p align="center"> ${\textsf{\color{#b01a2c}|| "That's great! If you would like to share your idea, send [NOBODY] [NOTHING]" }}$
+ㅤㅤ
+ㅤㅤ
+ㅤㅤ<img width="100%" height="128" alt="tumblr_3dc2d44db3a05ac6953ea9fdf16ed1d0_fac6e3b1_2048" src="https://github.com/user-attachments/assets/64158b26-18dd-4afa-9b17-18de68a04728" />
 
-<p align="center"> ${\textsf{\color{#e4ff03}> Access Granted }}$
-  
-<img width="100%" height="1237" alt="image-b082-gradientmap pro" src="https://github.com/user-attachments/assets/76f4028b-52ad-4bea-b1ac-5e48193d7eaa" />
 
-<div align="center">
-  
-${\textsf{\color{#11095B} ₊⁺ ૮꒰ •͈ ·̭ •͈ ꒱ა ⁺₊ }}$
 
-${\textsf{\color{#73AEB9} ۶ེ༹༷♡︎ᣟ݂ matty | artist / minor / taken by}}$ [my crazyblox](https://github.com/DarkSci-Facility) ${\textsf{\color{#73AEB9} ⁄⁄͈ . ᴗ͈ 𓏵𓏵 }}$
-
-${\textsf{\color{#D1F8FF} ⌕　𓊈𓏵𓊉 ‿୨ ݁𓈒͈ . ᴗ͈ ིྀ ͝   ‧̥̥ ISFP-T / in recovery / 05/10/26 ♡︎་། }}$
-
-${\textsf{\color{#F6007A} 𑣲₍ ᐢ. .ᐢ₎　 }}$
-</div>
-
+<p align="center"> 
+<table>
+  <tr>
+    <td valign="top" width="50%">
+      <img width="498" height="281" alt="guide-fe2 (1)" src="https://github.com/user-attachments/assets/8f985b9c-3faf-443f-b318-b7dfc92f0d0e" />
+       </td>
+    <td valign="top" width="100%">
+      <p align="center"> ${\textsf{\color{#b01a2c} ₊⁺ ૮꒰ •͈ ·̭ •͈ ꒱ა ⁺₊ }}$
+      <p align="center"> ${\textsf{\color{#4d070f} ۶ེ༹༷♡︎ᣟ݂ matty | artist of FE2TWT }}$
+      <p align="center"> ${\textsf{\color{#94696e}  ‧̥̥ in recovery | 05/10/26 ♡︎་། }}$
+      <p align="center"> ${\textsf{\color{#b59498}  𑣲₍ ᐢ. .ᐢ₎　 }}$
+      <p align="center"> ${\textsf{\color{#941927} ✟ ₊˚✦ taken by }}$ <a href="https://github.com/DarkSci-Facility">my crazyblox</a> 
+      <p align="center"> <a href="https://vitaly.straw.page/">strawpage</a> ${\textsf{\color{#e65364} 𓊈𓏵𓊉 }}$
+        <a href="https://cave-system.atabook.org/">atabook</a> ${\textsf{\color{#eb7583} 𓊈𓏵𓊉 }}$
+        <a href="https://x.com/voidstart3r">twitter</a> ${\textsf{\color{#eda8b0} 𓊈𓏵𓊉 }}$
+        <p align="center"> ${\textsf{\color{#9c1121}✶‎ ◌　﹒ guide BEST fictkin }}$
+          <p align="center"> ${\textsf{\color{#b59498} ♡︎ᣟ݂‘ crazyblox’s yumeshipper ︵✟　 }}$
+      </p>
+    </td>
+  </tr>
+</table>
 
 <p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&cover_image=true&theme=natemoo-re&show_offline=true&background_color=3c505d&interchange=true&profanity=true&bar_color=F6007A&bar_color_cover=false">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=b41d1d&bar_color_cover=false">
   </a>
 </p>
 
-<p align="center"> ${\textsf{\color{#F6007A} ㅤ✶‎ 　　◌　﹒   guide BEST fictkin ` crazyblox’s yumeshipper   ︵✟ ₊˚✦　 }}$
 
-<p align="center"> ${\textsf{\color{#D1F8FF}  How can I find you?  }}$
-
-<p align="center"> ${\textsf{\color{#73AEB9}  "There are 5 Variants in this "Profile". Which one do you need help with?"  }}$
 <div align="center">
   
-   [scarlette](https://www.tumblr.com/guideirl?source=share)${\textsf{\color{#c96565} (tumblr) }}$ 
-  ㅤ　[jasper](https://x.com/voidstart3r)${\textsf{\color{#b54545} (twitter) }}$
-ㅤ　　[refraction](https://github.com/Central-Mass-Array)${\textsf{\color{#994090} (spam acc) }}$
-ㅤㅤㅤ[laze](https://cave-system.atabook.org/)${\textsf{\color{#99405e} (atabook) }}$
+https://github.com/user-attachments/assets/7f5d6fbb-6ee6-4c1e-b7e9-10c73466f260
 </div>
 
-https://github.com/user-attachments/assets/124743b4-290f-43fd-a632-51ef49af6a13
-
-<p align="center"> ${\textsf{\color{#73AEB9} I have an idea and questions for this profile! }}$
-  
 <div align="center">
   
-   [send Crazyblox a message!](https://vitaly.straw.page/)${\textsf{\color{#11095B} (strawpage) }}$ 
+<img width="10%" height="480" alt="image" src="https://github.com/user-attachments/assets/7009280d-4dc8-488c-bf2a-ae719ca3fb61" /><img width="10%" height="480" alt="image" src="https://github.com/user-attachments/assets/d3a8ba7a-bc2a-4972-9447-462682b68c8d" /> <img width="10%" height="480" alt="image" src="https://github.com/user-attachments/assets/656443ee-92c9-482a-ad47-133ae39adfe1" />
 
-<img width="100%" height="380" alt="image" src="https://github.com/user-attachments/assets/84c6f6ef-0230-4286-bfa9-b21a9f113340" />
+</div>
 
-<img width="705%" height="129" alt="image-562e-gradientmap pro" src="https://github.com/user-attachments/assets/2b4539a5-a05f-4fb4-85cf-47d511a69507" />
+<img width="100%" height="100" alt="image" src="https://github.com/user-attachments/assets/97d610ba-7138-4fcd-8704-9fe267635cd1" />
