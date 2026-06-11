@@ -20,7 +20,7 @@
       <p align="center"> ${\textsf{\color{#94696e}  ‧̥̥ in recovery | 05/10/26 ♡︎་། }}$
       <p align="center"> ${\textsf{\color{#b59498}  𑣲₍ ᐢ. .ᐢ₎　 }}$
       <p align="center"> ${\textsf{\color{#941927} ✟ ₊˚✦ taken by }}$ <a href="https://github.com/DarkSci-Facility">my crazyblox</a> 
-      <p align="center"> <a href="https://vitaly.straw.page/">strawpage</a> ${\textsf{\color{#e65364} 𓊈𓏵𓊉 }}$
+      <p align="center"> <a href="https://dued1u.straw.page/">strawpage</a> ${\textsf{\color{#e65364} 𓊈𓏵𓊉 }}$
         <a href="https://cave-system.atabook.org/">atabook</a> ${\textsf{\color{#eb7583} 𓊈𓏵𓊉 }}$
         <a href="https://x.com/voidstart3r">twitter</a> ${\textsf{\color{#eda8b0} 𓊈𓏵𓊉 }}$
         <p align="center"> ${\textsf{\color{#9c1121}✶‎ ◌　﹒ guide BEST fictkin }}$
