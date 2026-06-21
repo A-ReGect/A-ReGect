@@ -1,51 +1,22 @@
-<img width="100%" height="330" alt="tumblr_e4eeb11887611acf33f3d7bab225a014_4b5707d9_2048" src="https://github.com/user-attachments/assets/4f01306f-8b9b-40b3-9de8-54cca247c6d7" />
+<div align="center"> 
+  <a href="https://hits.sh/github.com/A-ReGect/"><img alt="Hits" src="https://hits.sh/github.com/A-ReGect.svg?style=for-the-badge&label=kills&extraCount=10689&color=124c63&labelColor=6aa7a1"/></a>
+  
+<p align="center"> <img width="5%" height="24" alt="tumblr_050437fd8e57681bee84cdffc1b656eb_2cfe89a0_75" src="https://github.com/user-attachments/assets/8c2c63a1-e320-4cda-8ebe-7dcada3b7270" />
 
+<p align="center"> ${\textsf{\color{#124c63} Hello its me crewmate Im the good guy of the spaceship }}$
+<p align="center"> ${\textsf{\color{#e2b15d}  ♡︎ᣟ݂‘ crazyblox’s yumeshipper || green ♡ guide heavy kinnie ︵✟ }}$
  
-# <p align="center"> ${\textsf{\color{#b01a2c}|| "That's great! If you would like to share your idea, send [NOBODY] [NOTHING]" }}$
-ㅤㅤ
-ㅤㅤ
-ㅤㅤ<img width="100%" height="128" alt="tumblr_3dc2d44db3a05ac6953ea9fdf16ed1d0_fac6e3b1_2048" src="https://github.com/user-attachments/assets/64158b26-18dd-4afa-9b17-18de68a04728" />
+ <p align="center"> <img width="80%" height="500" alt="image" src="https://github.com/user-attachments/assets/261124a5-8f43-450c-965b-aeef0d7e9397" />
 
+ <p align="center"> ${\textsf{\color{#124c63}　 ⟣ — 𝕄𝗮𝘁𝘁𝘆 ㅤ ᵒʳ ㅤ 𝔼𝘁𝗵𝗮𝗻 !! 𝐓𝒶𝓀ℯ𝓃 by — }}$ <a href="https://github.com/DarkSci-Facility">my crazy!</a> 
+ <p align="center"> ${\textsf{\color{#6aa7a1}  ૮₍ ´ ꒳ `₎ა♡❀ ﹟ He / They ꜛ }}$
+ <p align="center"> ${\textsf{\color{#e2b15d}  Find me! ✦ }}$ <a href="https://dued1u.straw.page/">strawpage</a> ${\textsf{\color{#fff3cf} 𓊈𓏵𓊉 }}$ <a href="https://cave-system.atabook.org/">atabook</a> ${\textsf{\color{#6aa7a1} 𓊈𓏵𓊉 }}$
+ <p align="center"> ${\textsf{\color{#fff3cf}  rblx player ꜝ }}$ <a href="https://x.com/voidstart3r">@voidstart3r</a> ${\textsf{\color{#fff3cf} ⌕ twt ⟢ }}$
 
-
-<p align="center"> 
-<table>
-  <tr>
-    <td valign="top" width="50%">
-      <img width="498" height="281" alt="guide-fe2 (1)" src="https://github.com/user-attachments/assets/8f985b9c-3faf-443f-b318-b7dfc92f0d0e" />
-       </td>
-    <td valign="top" width="100%">
-      <p align="center"> ${\textsf{\color{#b01a2c} ₊⁺ ૮꒰ •͈ ·̭ •͈ ꒱ა ⁺₊ }}$
-      <p align="center"> ${\textsf{\color{#4d070f} ۶ེ༹༷♡︎ᣟ݂ matty | artist of FE2TWT }}$
-      <p align="center"> ${\textsf{\color{#94696e}  ‧̥̥ in recovery | 05/10/26 ♡︎་། }}$
-      <p align="center"> ${\textsf{\color{#b59498}  𑣲₍ ᐢ. .ᐢ₎　 }}$
-      <p align="center"> ${\textsf{\color{#941927} ✟ ₊˚✦ taken by }}$ <a href="https://github.com/DarkSci-Facility">my crazyblox</a> 
-      <p align="center"> <a href="https://dued1u.straw.page/">strawpage</a> ${\textsf{\color{#e65364} 𓊈𓏵𓊉 }}$
-        <a href="https://cave-system.atabook.org/">atabook</a> ${\textsf{\color{#eb7583} 𓊈𓏵𓊉 }}$
-        <a href="https://x.com/voidstart3r">twitter</a> ${\textsf{\color{#eda8b0} 𓊈𓏵𓊉 }}$
-        <p align="center"> ${\textsf{\color{#9c1121}✶‎ ◌　﹒ guide BEST fictkin }}$
-          <p align="center"> ${\textsf{\color{#b59498} ♡︎ᣟ݂‘ crazyblox’s yumeshipper ︵✟　 }}$
-      </p>
-    </td>
-  </tr>
-</table>
+<p align="center"> <img width="62%" height="209" alt="image" src="https://github.com/user-attachments/assets/c402a0f7-a99d-4240-9c57-b32979068d7f" />
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=b41d1d&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=6eb476&bar_color_cover=false">
   </a>
 </p>
-
-
-<div align="center">
-  
-https://github.com/user-attachments/assets/7f5d6fbb-6ee6-4c1e-b7e9-10c73466f260
-</div>
-
-<div align="center">
-  
-<img width="10%" height="480" alt="image" src="https://github.com/user-attachments/assets/7009280d-4dc8-488c-bf2a-ae719ca3fb61" /><img width="10%" height="480" alt="image" src="https://github.com/user-attachments/assets/d3a8ba7a-bc2a-4972-9447-462682b68c8d" /> <img width="10%" height="480" alt="image" src="https://github.com/user-attachments/assets/656443ee-92c9-482a-ad47-133ae39adfe1" />
-
-</div>
-
-<img width="100%" height="100" alt="image" src="https://github.com/user-attachments/assets/97d610ba-7138-4fcd-8704-9fe267635cd1" />
