@@ -10,7 +10,7 @@
 
  <p align="center"> ${\textsf{\color{#124c63}　 ⟣ — 𝕄𝗮𝘁𝘁𝘆 ㅤ ᵒʳ ㅤ 𝔼𝘁𝗵𝗮𝗻 !! 𝐓𝒶𝓀ℯ𝓃 by — }}$ <a href="https://github.com/DarkSci-Facility">my crazy!</a> 
  <p align="center"> ${\textsf{\color{#6aa7a1}  ૮₍ ´ ꒳ `₎ა♡❀ ﹟ He / They ꜛ }}$
- <p align="center"> ${\textsf{\color{#e2b15d}  Find me! ✦ }}$ <a href="https://dued1u.straw.page/">strawpage</a> ${\textsf{\color{#fff3cf} 𓊈𓏵𓊉 }}$ <a href="https://cave-system.atabook.org/">atabook</a> ${\textsf{\color{#6aa7a1} 𓊈𓏵𓊉 }}$
+ <p align="center"> ${\textsf{\color{#e2b15d}  Find me! ✦ }}$ <a href="https://dued1u.straw.page/">strawpage</a> ${\textsf{\color{#fff3cf} 𓊈𓏵𓊉 }}$ <a href="https://captainworm.atabook.org/">atabook</a> ${\textsf{\color{#6aa7a1} 𓊈𓏵𓊉 }}$
  <p align="center"> ${\textsf{\color{#fff3cf}  rblx player ꜝ }}$ <a href="https://x.com/voidstart3r">@voidstart3r</a> ${\textsf{\color{#fff3cf} ⌕ twt ⟢ }}$
 
 <p align="center"> <img width="62%" height="209" alt="image" src="https://github.com/user-attachments/assets/c402a0f7-a99d-4240-9c57-b32979068d7f" />
