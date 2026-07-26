@@ -20,3 +20,6 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&cover_image=true&theme=novatorem&show_offline=false&background_color=86bfca&interchange=false&profanity=false&hide_remaster=false&bar_color=769bd5&bar_color_cover=false">
   </a>
 </p>
+
+<div align="center">
+<img width="128" height="128" alt="hZdPxh8EaeyCZBOA" src="https://github.com/user-attachments/assets/47917df0-8fcf-441d-b09b-292b26af0e21" />
