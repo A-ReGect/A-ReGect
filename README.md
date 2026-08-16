@@ -19,7 +19,8 @@
   </a>
 </p>
 <p align="center"> ${\textsf{\color{#4928C2} 𓈒ֵ۫ ⚠︎     purple n noob49 fictkin   —   ' <3   up !!      ˣ෴ˣ }}$ 
-  
+  <p align="center"> ${\textsf{\color{#040607} pony town's purple, tawny and guide <3 }}$ 
+    
 <p align="center">
   <a href="https://captainworm.atabook.org/">♡ atabook</a>
   $$\color{#5B2A62}<- sign\ \color{#BF40FA}this ->$$
