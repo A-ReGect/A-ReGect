@@ -17,7 +17,7 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=8c4f3b&bar_color_cover=false">
   </a>
 </p>
-<p align="center"> $$\color{#240604} 𝐟𝐨𝐥𝐥𝐨𝐰ㅤ 𝐦𝐲ㅤ $$ <a href="https://github.com/DarkSci-Facility">𝐞𝐯𝐢𝐥</a> $$\color{#240604}ㅤ 𝐠𝐮𝐲 $$
+<p align="center"> $$\color{#240604} 𝐟𝐨𝐥𝐥𝐨𝐰ㅤ 𝐦𝐲ㅤ $$ <a href="https://github.com/EvilMortyIrl">𝐞𝐯𝐢𝐥</a> $$\color{#240604}ㅤ 𝐠𝐮𝐲 $$
 <p align="center"> <img width="148" height="125%" alt="image" src="https://github.com/user-attachments/assets/d4b8cace-870f-49ed-be51-934c96d35e50" />
 
 <p align="center">
