@@ -23,5 +23,5 @@
 <p align="center">
   <a href="https://captainworm.atabook.org/">♡ atabook</a>
   $$\color{#e2b15d}<- sign\ \color{#fff3cf}this ->$$
-  <a href="https://purpss.straw.page/">strawpage ♡</a>
+  <a href="https://mowty.straw.page/">strawpage ♡</a>
 </p>
