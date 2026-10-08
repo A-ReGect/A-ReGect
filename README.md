@@ -19,4 +19,4 @@ ___
 <p align="center">
   <a href="https://captainworm.atabook.org/">♡ </a>
   $$\color{#7a95ff}<- \ \color{#ff7aa9} ->$$
-  <a href="https://purpss.straw.page/"> ♡</a>
+  <a href="https://miamikin.straw.page/"> ♡</a>
