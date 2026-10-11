@@ -20,3 +20,5 @@ ___
   <a href="https://captainworm.atabook.org/">♡ </a>
   $$\color{#7a95ff}<- \ \color{#ff7aa9} ->$$
   <a href="https://miamikin.straw.page/"> ♡</a>
+
+$$\color{#6aa7a1} ¢συηтєяㅤ σƒㅤ нσωㅤ мαηуㅤ мιαмιㅤ мσятуѕㅤ ι'νєㅤ мα∂є ㅤσυтㅤ σяㅤ кιѕѕє∂:ㅤ 566 $$
